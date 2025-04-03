@@ -1,5 +1,3 @@
-Tuyệt vời, đây là dòng thời gian lịch sử đã được chỉnh sửa với ngôn ngữ trang trọng và chuyên nghiệp hơn, giữ nguyên thông tin và định dạng gốc:
-
 **Dòng Thời Gian Lịch Sử Tổng Hợp (1847 - 2025)**
 
 - **1847:**
